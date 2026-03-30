@@ -6,7 +6,7 @@
 
 _skitzo ;; 4teen ;; she/her_
 
-![](https://i.pinimg.com/avif/1200x/c9/4e/ef/c94eef11d2f3f2a1d0d4b6b44403e290.avf)  
+![](https://i.pinimg.com/736x/2e/b0/40/2eb040f00c62887641bd87bcd0cf374b.jpg)  
 
 **about me**
 
