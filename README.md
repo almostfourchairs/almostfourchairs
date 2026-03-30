@@ -13,3 +13,5 @@ FANDOMS:: cry of fear/afraid of monsters ;; zero day ;; stardew valley ;; some a
 FAVS:: david leatherhoff ;; shane ;; cal gabriel ;; clay puppington ;; etc ...
 
 **no dni , just dont be weird**
+
+_i do not support any killers/schoolshooters btw_
