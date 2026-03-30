@@ -2,7 +2,7 @@
 
 **HEYYY THEEREEEE**  
 
-_skitzo ;; russian ;; 4teen ;; she/her_
+_skitzo ;; russian ;; cishet ;; she/her_
 
 ![](https://i.pinimg.com/736x/ee/fe/89/eefe89e637ede5e81f57c287f84cd141.jpg)  
 
