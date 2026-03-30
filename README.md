@@ -10,12 +10,6 @@ _skitzo ;; russian ;; cishet ;; she/her_
 
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2f0298c8-6e53-4d8c-8c3f-4555409a531a/dgqmmqs-129b4abd-4b0c-4758-b5ff-dc0a9138f694.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8yZjAyOThjOC02ZTUzLTRkOGMtOGMzZi00NTU1NDA5YTUzMWEvZGdxbW1xcy0xMjliNGFiZC00YjBjLTQ3NTgtYjVmZi1kYzBhOTEzOGY2OTQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.32c6NcWcH-vRzGmElZfGcbW4C1bG4z4SEN7qr8v6ax4)  
 
-**about me**
-
-FANDOMS:: cry of fear/afraid of monsters ;; zero day ;; stardew valley ;; pokemon ;; some adult swim shows ;; suicide room ;; jaws(1975) ;; reanimator ;; human centipede ;; tusk ;; young sheldon etc ...
-
-FAVS:: david leatherhoff ;; shane ;; cal gabriel ;; clay puppington ;; martin brody ;; herbert west ;; daniel cain ;; georgie cooper ;; james ;; etc ...
-
 **no dni , just dont be weird**
 
 _i do not support any killers/schoolshooters btw_
