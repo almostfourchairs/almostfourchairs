@@ -14,6 +14,6 @@ _skitzo ;; russian ;; cishet ;; she/her_
 
 _i do not support any killers/schoolshooters btw_
 
-[_ata_](https://skitzo.atabook.org/)
+[_ata_](https://skitzo.atabook.org/) ⸝⸝ [_straw(for pc)_](https://privetskitzo.straw.page)
 
 ![](https://64.media.tumblr.com/ef25be8265b37273a13689eccb8e8277/394fb69f4b2a3c71-37/s540x810/78c16104ea3b7d28507e9998210b0a06d6c77087.gifv)  
