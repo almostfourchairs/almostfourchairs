@@ -14,7 +14,7 @@ if im not on my usual spot im either sleeping or playing with friend on safe rus
 
 **no dni , just dont be weird**
 
-_i do not support any serial killers/schoolshooters & i am NOT tcc btw_
+_idgaf about tcc just dont earfuck me about it PLEASE_
 
 [_ata_](https://skitzo.atabook.org/) ⸝⸝ [_straw(for pc)_](https://privetskitzo.straw.page)
 
