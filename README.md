@@ -1,12 +1,14 @@
 <div align="center">
 
-**HEYYY THEEREEEE**  
+**HEYYY THEEREEEE**
 
 _skitzo ;; russian ;; cishet ;; she/her_
 
 if im not on my usual spot im either sleeping or playing with friend on safe russian 1
 
-![larps](https://komarev.com/ghpvc/?username=almostfourchairs&label=larps&labelColor=bdb4b3&color=616161&style=plastic)
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=almostfourchairs&label=larps&labelColor=bdb4b3&color=616161&style=plastic" height="62" alt="larps counter">
+</div>
 
 ![](https://64.media.tumblr.com/c2f34775216159eb5c9ea0ac5363093e/b0856e57730df667-e4/s500x750/7c233eb30785a041f98a9bb4620f2a9add06d573.gifv)  
 
