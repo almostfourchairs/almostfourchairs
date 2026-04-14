@@ -12,7 +12,7 @@ if im not on my usual spot im either sleeping or playing with friend on safe rus
 
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2f0298c8-6e53-4d8c-8c3f-4555409a531a/dgqmmqs-129b4abd-4b0c-4758-b5ff-dc0a9138f694.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8yZjAyOThjOC02ZTUzLTRkOGMtOGMzZi00NTU1NDA5YTUzMWEvZGdxbW1xcy0xMjliNGFiZC00YjBjLTQ3NTgtYjVmZi1kYzBhOTEzOGY2OTQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.32c6NcWcH-vRzGmElZfGcbW4C1bG4z4SEN7qr8v6ax4)  
 
-_tcc, antis dni please_
+_tcc ;; antis dni_
 
 **IF YOU DON'T LIKE ANYTHING ABOUT ME JS IGNOREEE!!!!I BLOCK FREELYY BOOHOO!!!!**
 
