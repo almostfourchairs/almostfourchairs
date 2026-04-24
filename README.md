@@ -10,9 +10,11 @@ if im not on my usual spot im either sleeping or playing with friend on safe rus
 
 ![](https://i.pinimg.com/736x/ee/fe/89/eefe89e637ede5e81f57c287f84cd141.jpg)  
 
-_tcc ;; antis dni_
+_tcc_
 
-**IF YOU DON'T LIKE SOMETHING ABOUT ME JS IGNOREEE!!!!I BLOCK FREELYY BOOHOO!!!!**
+_DNI: antis ;; yumeshippers/systems/fictionkins(im sure yall r cool but im not sure how to interact with you so dont for both our sakes)_
+
+**IF YOU DON'T LIKE SOMETHING ABOUT ME JUST BLOCK OR IGNORE ME**
 
 [_ata_](https://skitzo.atabook.org/) ⸝⸝ [_straw(for pc)_](https://privetskitzo.straw.page)
 
