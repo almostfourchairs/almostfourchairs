@@ -16,6 +16,6 @@ _DNI: antis ;; yumeshippers/systems/fictionkins(im sure yall r cool but im not s
 
 **IF YOU DON'T LIKE SOMETHING ABOUT ME JUST BLOCK OR IGNORE ME**
 
-[_ata_](https://skitzo.atabook.org/) ⸝⸝ [_straw(for pc)_](https://privetskitzo.straw.page)
+[_ata_](https://skitzo.atabook.org/)
 
 ![](https://64.media.tumblr.com/ef25be8265b37273a13689eccb8e8277/394fb69f4b2a3c71-37/s540x810/78c16104ea3b7d28507e9998210b0a06d6c77087.gifv)  
